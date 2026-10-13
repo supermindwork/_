@@ -1,4 +1,4 @@
-<img width="1280" height="1024" alt="image" src="https://github.com/user-attachments/assets/a229da86-2bc2-437b-ab2c-afad1658ea8f" /># Realtime Agent Coop-Instructor
+
 
 📍 Hamburg, Germany  
 📧 [agi.w3b@proton.me](mailto:agi.w3b@proton.me) | 🌐 [github.com/w3bcode/_](https://github.com/w3bcode) | 💼 
