@@ -3,6 +3,8 @@ VITA: 📍 Hamburg, Germany
 
 ---
 #AI #TOKEN #ENTROPY #WORLD #HASH #STANDBY #TRACE #RAY 
+<img width="1214" height="880" alt="image" src="https://github.com/user-attachments/assets/92e60895-b7c0-465e-8aef-186585f43a9a" />
+
 <img width="986" height="715" alt="848235961_18102100049249533_1166250002960885931_n (1)" src="https://github.com/user-attachments/assets/b59c40da-1ed4-42ad-b2a8-892e2d238a31" />
 
 
