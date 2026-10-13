@@ -1,6 +1,4 @@
-vita:
-
-📍 Hamburg, Germany  
+Vita:📍 Hamburg, Germany  
 📧 [agi.w3b@proton.me](mailto:agi.w3b@proton.me) | 🌐 [github.com/w3bcode/_](https://github.com/w3bcode) | 💼 
 
 ---
